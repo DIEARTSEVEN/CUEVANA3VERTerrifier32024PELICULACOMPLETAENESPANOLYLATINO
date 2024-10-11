@@ -2,9 +2,9 @@
 
 hace 17 minutos — Pelisplus Ver Terrifier 3 película Completa en linea en español. ver gratis en línea [Ver Terrifier 3] 2024 en español latino | Disfruta de la Película Completa de Terrifier 3 en HD con Audio Español y Latino Subtitulado.
 
-VER AHORA ➥ Joker : [Folie à Deux (2024) Pelicula Completa Online en Español](https://t.co/Vm3PJhP6J2)
+VER AHORA ➥ [Terrifier 3 (2024) Pelicula Completa Online en Español](https://t.co/Vm3PJhP6J2)
 
-DESCARGAR ➥ Joker : [Folie à Deux (2024) Pelicula Completa Online en Español](https://t.co/otP0LeJ3Xr)
+DESCARGAR ➥ [Terrifier 3 (2024) Pelicula Completa Online en Español](https://t.co/otP0LeJ3Xr)
 
 [![STREAM HD](https://i.imgur.com/jhNGoEt.gif)](https://t.co/otP0LeJ3Xr)
 
